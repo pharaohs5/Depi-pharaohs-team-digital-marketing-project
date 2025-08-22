@@ -5,8 +5,8 @@ Digital marketing project showcasing the richness of Egypt’s cultural heritage
 ---
 
 ## 📌 Team Members
-- Mohamed Ayman
+- Mohamed Ayman salah
 - Ali kamal
-- abdelrahman 
-- ahmed sarhan
-- abdullah mohamed
+- Abdelrahman Mahmoud Ahmed
+- Ahmed Sarhan 
+- Abdullah Mohamed
