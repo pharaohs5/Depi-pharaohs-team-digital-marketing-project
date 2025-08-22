@@ -1,2 +1,12 @@
 # Depi-pharaohs-team-digital-marketing-project
-It’s a digital marketing project about Egyptian cultural heritage
+
+Digital marketing project showcasing the richness of Egypt’s cultural heritage .
+
+---
+
+## 📌 Team Members
+- Mohamed Ayman
+- Ali kamal
+- abdelrahman 
+- ahmed sarhan
+- abdullah mohamed
