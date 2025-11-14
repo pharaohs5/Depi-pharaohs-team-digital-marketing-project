@@ -59,14 +59,14 @@
 
 ### **Marketing Strategy & Content Plan**
 
-*https://drive.google.com/drive/folders/1sE-n_54RzXApL3l2p0enGmjHeap2IRIS?usp=sharing
+* https://drive.google.com/drive/folders/1sE-n_54RzXApL3l2p0enGmjHeap2IRIS?usp=sharing
 
 ### **Social media pages**
 
-*https://web.facebook.com/Egyptheritagehub
-*https://www.instagram.com/egypt_heritage_hub/
-*https://www.tiktok.com/@user492970663
+* https://web.facebook.com/Egyptheritagehub
+* https://www.instagram.com/egypt_heritage_hub/
+* https://www.tiktok.com/@user492970663
 
 ### **App**
 
-*https://drive.google.com/file/d/1mIxHmRK-S3PhUxLIvD4fTT4AiR_dLSyz/view?usp=sharing
+ * https://drive.google.com/file/d/1mIxHmRK-S3PhUxLIvD4fTT4AiR_dLSyz/view?usp=sharing
