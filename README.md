@@ -56,3 +56,17 @@
 * **Abdelrahman Mahmoud:** Compile a report on the influencer campaigns and their results.
 * **Abdullah Mohamed:** Deliver a comprehensive report on the project’s success, focusing on the key conversion rates.
 * **Ahmed Khaled:** Summarize app features and initial user feedback for the final report.
+
+### **Marketing Strategy & Content Plan**
+
+*https://drive.google.com/drive/folders/1sE-n_54RzXApL3l2p0enGmjHeap2IRIS?usp=sharing
+
+### **Social media pages**
+
+*https://web.facebook.com/Egyptheritagehub
+*https://www.instagram.com/egypt_heritage_hub/
+*https://www.tiktok.com/@user492970663
+
+### **App**
+
+*https://drive.google.com/file/d/1mIxHmRK-S3PhUxLIvD4fTT4AiR_dLSyz/view?usp=sharing
